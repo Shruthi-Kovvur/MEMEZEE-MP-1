@@ -1,1 +1,5 @@
 # MEMEZEE-MP-1
+Team #08
+1602-20-737-003 Akshitha
+1602-20-737-036 Shruthi
+1602-20-737-037 Samiksha
